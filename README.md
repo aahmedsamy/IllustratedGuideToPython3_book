@@ -8,10 +8,21 @@ ___________________________________________
 
 ## **CONTACT INFO**
 
-Name : Ahmed Samy Hamad.
+- Name : Ahmed Samy Hamad.
 
-Email : aahmedsamy.as@gmail.com.
+- Email : aahmedsamy.as@gmail.com.
 
-Phone : (+20) 1060444567.
+- Phone : (+20) 1060444567.
 
-LinkedIn : https://www.linkedin.com/in/aahmedsamy.
+- LinkedIn : https://www.linkedin.com/in/aahmedsamy.
+------
+
+**hire me...**
+===
+
+  - Upwork:  https://bit.ly/30XQ8NL
+  - Mostaql: https://bit.ly/34SPORg
+  
+ ------------------
+ Feel free to get in touch whenever you want. 
+  
